@@ -1,4 +1,4 @@
-#### 1 Amanda was not here.
+#### 1 Amanda is not fat.
 
 #### 2
 
